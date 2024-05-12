@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **par642662@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1C-w-pygkNWOx520HS8kG5l2cjkCtF7vr/view?usp=sharing](https://drive.google.com/file/d/1C-w-pygkNWOx520HS8kG5l2cjkCtF7vr/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1C-w-pygkNWOx520HS8kG5l2cjkCtF7vr/view?usp=sharing](https://drive.google.com/file/d/1k1yKpoUg61M0US5OIiOai8eo-f_iueBH/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
